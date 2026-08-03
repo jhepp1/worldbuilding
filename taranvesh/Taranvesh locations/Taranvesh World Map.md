@@ -1,0 +1,1 @@
+![[taranvesh world map.png]]

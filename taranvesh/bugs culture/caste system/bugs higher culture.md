@@ -1,0 +1,1 @@
+one such example of higher culture / the upper class  is the [[ornarta imperium]] , [[sakura collective]] ,[[moth guardians]], [[Papilio tribe]]those who are deemed to be of higher culture often hold a sense of entitlement and prejudice  

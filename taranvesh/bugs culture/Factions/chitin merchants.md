@@ -1,0 +1,2 @@
+a nomadic culture responsible for  bringing exotic items in from far off places  the main species in this culture are grubs and many flying insects such as dragonflies, lantern bugs, fireflies due to their flight. they use modified baskets to carry their goods , they are neutral and trade with anyone for the correct price , despite their usefulness to  society they are deemed to have low class and are very demonised 
+by the higher classes as lowly and disgusting 
