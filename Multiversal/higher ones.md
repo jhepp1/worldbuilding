@@ -1,4 +1,4 @@
 [[high lord Glacius]]
 [[controller of advancement signus]]
-[[sigularity]]
+[[singularity]]
 [[Oracle the script writer]]
