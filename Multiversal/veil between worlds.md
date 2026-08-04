@@ -1,1 +1,1 @@
-a rip in space and time that is said to show the homeland of the [[higher ones]]
+a rip in space and time that is said to show the homeland of the [[higher ones]] and the infinite possibilities of the multiverse 
