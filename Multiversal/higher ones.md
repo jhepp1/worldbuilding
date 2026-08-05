@@ -2,3 +2,4 @@
 [[controller of advancement signus]]
 [[singularity]]
 [[Oracle the script writer]]
+[[Emissary of discord nthlotep]]
