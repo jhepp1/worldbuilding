@@ -4,4 +4,4 @@ They are said to use weapons forged from steel mixed with blood of [[the last ap
 
 The brotherhood is theorised to be responsible for some of the darkest days of taranvesh such the as the release of the [[stone golems]] on [[Troilia]] a problem that nearly wiped out the moth clans that make up the papilio tribe in ancient times
 
-unlike natural ornarta the LHBs ornarta are made by Nthlotep due to this they  have sickly purple cracks on their body instead of the classic gemlike formations that natural ornarta  
+unlike natural ornarta the LHBs ornarta are made by Nthlotep's magic due to this they  have sickly purple cracks on their body instead of the classic gemlike formations that natural ornarta , the spell also binds their will to Nthlotep creating a fierce and near unbreakable loyalty 
