@@ -6,4 +6,4 @@
 [[samantha]]
 [[Possum romance lady]]
 [[Lavender adultry]]
-[[fem presenting Coľon (hairspray positive colin)]]
+[[Coľon (hairspray positive drag queen colin)]]
