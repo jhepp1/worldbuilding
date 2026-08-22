@@ -2,3 +2,4 @@
 [[End locations ]]
 [[nether locations ]]
 [build ideas ]
+[[UUIDS]]
