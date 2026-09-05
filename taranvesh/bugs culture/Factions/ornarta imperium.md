@@ -1,4 +1,4 @@
-a group that are held in high regard by the they are the ruling class of this society legends state the ornarta are blessed by the heavens themselves however reports of this remain unconfirmed  
+a group that are held in high regard by the  public they are the ruling class of this society legends state the ornarta are blessed by the heavens themselves however reports of this remain unconfirmed  
 
 many of the ornarta have strange crystalline growths on their exo-skeleton  these are a rare mutation that about 1% of the  bugs population  these growths have the same properties as the gemstones they replicate 
 
