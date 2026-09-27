@@ -1,0 +1,1 @@
+Taranvesh story condensed
