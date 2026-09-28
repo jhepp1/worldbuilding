@@ -10,3 +10,4 @@ Showcase the affliction of the crystallized / ornarta and how it effects their a
 1 condensed story 
 5 building designs 
 1 portfolio 
+5 3d models
