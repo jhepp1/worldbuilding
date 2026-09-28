@@ -9,3 +9,4 @@ Showcase the affliction of the crystallized / ornarta and how it effects their a
 1 world map 
 1 condensed story 
 5 building designs 
+1 portfolio 
