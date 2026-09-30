@@ -1,0 +1,11 @@
+{
+	"nodes":[
+		{"id":"480520db73704a4e","x":-220,"y":-340,"width":400,"height":300,"type":"file","file":"Pasted image 20260930100607.png"},
+		{"id":"fa69ea8736dfe686","x":-487,"y":-700,"width":267,"height":400,"type":"file","file":"Black and White Weevil_ Congo.jpg"},
+		{"id":"dee535f7379d6d99","x":-640,"y":-260,"width":400,"height":259,"type":"file","file":"Pasted image 20260930100312.png"},
+		{"id":"4d830894e9cb64c7","x":-959,"y":-140,"width":400,"height":278,"type":"file","file":"Pasted image 20260930095759.png"},
+		{"id":"199bfd4f4ac8f7e6","x":-806,"y":-580,"width":319,"height":320,"type":"file","file":"Pasted image 20260930095910.png"},
+		{"id":"2f64a1595c756dec","x":-965,"y":-260,"width":325,"height":110,"type":"text","text":"taranvesh"}
+	],
+	"edges":[]
+}
