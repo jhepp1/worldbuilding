@@ -1,1 +1,1 @@
-A rag tag group of 
+A rag tag group of lunar hand defectors on a quest to escape the cult and 
