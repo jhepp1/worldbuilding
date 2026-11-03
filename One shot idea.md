@@ -1,1 +1,1 @@
-A rag tag group of lunar hand defectors on a quest to escape the cult and 
+A rag tag group of lunar hand defectors on a quest to rob the king of beetles so they can start a better life 
