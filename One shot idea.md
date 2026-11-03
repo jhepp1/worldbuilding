@@ -2,4 +2,5 @@ A rag tag group of lunar hand defectors on a quest to rob the king of beetles so
 
 Act one : escape from the lunar hand brother hood and character introductions 
 
-Act two : entry into Taravas and di
+Act two : entry into Taravas and disguising to infiltrate the beetle mound and uncovering the secret underbelly of the 
+
