@@ -4,5 +4,5 @@ Act one : escape from the lunar hand brother hood and character introductions
 
 Act two : entry into Taravas and disguising to infiltrate the beetle mound and uncovering the secret underbelly of the taravasian monarchy 
 
-Act three : battle for the crown treasures and ending it
+Act three : battle for the crown treasures and ending it with some tension 
 
