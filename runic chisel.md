@@ -1,1 +1,1 @@
-A tool made of folded hardened iron usually with a ornate and fitted handle 
+A tool made of folded hardened iron usually with a ornate and fitted handle, used to create enchantments and 
