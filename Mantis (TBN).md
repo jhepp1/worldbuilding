@@ -1,1 +1,1 @@
-A su
+A surprisingly brutal people they are know for being noble and battle hardened 
