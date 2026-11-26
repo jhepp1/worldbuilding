@@ -2,4 +2,5 @@ A surprisingly brutal people they are know for being noble and battle hardened a
 
 They see the world in a spectrum of colours unseen by the majority of species due to this they can see opponents from distances unfavorable to the others 
 
-The mantis seem to lack imagination when talking to the
+The mantis seem to lack imagination when talking to their few allied species often going to [[Silk Weavers]] for war plans , while acting as mercenaries/ soldiers
+
