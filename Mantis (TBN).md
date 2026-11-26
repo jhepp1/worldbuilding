@@ -1,3 +1,5 @@
 A surprisingly brutal people they are know for being noble and battle hardened able to run into danger with little care for their life 
 
-They see the world in a spec of colours unseen by the majority of species 
+They see the world in a spectrum of colours unseen by the majority of species due to this they can see opponents from distances unfavorable to the others 
+
+The mantis seem to lack imagination when talking to the
