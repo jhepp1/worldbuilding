@@ -7,3 +7,5 @@ The mantis seem to lack imagination when talking to their few allied species oft
 Their home territory of (TBN) is a crater of what is said to be an ancient city of the giants that they have adapted into a macro colony holding a large majority of their population 
 
 The adapted ruins is decorated with large sweeping vines glowing mysterious fruit and leaves that blots out the sunlight 
+
+They have a focus on invisible master pieces
