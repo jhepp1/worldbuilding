@@ -8,4 +8,4 @@ Their home territory of (TBN) is a crater of what is said to be an ancient city 
 
 The adapted ruins is decorated with large sweeping vines glowing mysterious fruit and leaves that blots out the sunlight 
 
-They have a focus on invisible master pieces
+They have a focus on invisible (to the majority of other species) masterpieces in their downtime 
