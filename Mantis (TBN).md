@@ -4,4 +4,4 @@ They see the world in a spectrum of colours unseen by the majority of species du
 
 The mantis seem to lack imagination when talking to their few allied species often going to [[Silk Weavers]] for war plans , while acting as mercenaries/ soldiers
 
-Their home territory of (TBN) is a crater of what is said to be an ancient city of the giants 
+Their home territory of (TBN) is a crater of what is said to be an ancient city of the giants that they have adapted into a macro colony holding a 
